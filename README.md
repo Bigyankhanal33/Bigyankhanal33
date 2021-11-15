@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Bigyankhanal33
 - 👀 I’m interested in Gaming
-- 🌱 I’m currently learning Bachelor of Information Technology
+- 🌱 I’m currently studying Bachelor of Information Technology
 - 💞️ I’m looking to collaborate on Web Application
 - 📫 How to reach me @_imbigyan in insta, Bee Gyan Khanal in Facebook, Bigyan Khanal in linkdin, Notskinny#5566 in Discord.
 
