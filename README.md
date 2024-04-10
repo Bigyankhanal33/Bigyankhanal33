@@ -2,7 +2,7 @@
 - 👀 I’m interested in Gaming
 - 🌱 I’m currently studying Bachelor of Information Management.
 - 💞️ I’m looking to collaborate on Web Application
-- 📫 How to reach me @_imbigyan in insta, Bee Gyan Khanal in Facebook, Bigyan Khanal in linkdin, Notskinny#5566 in Discord.
+- 📫 How to reach me @_imbigyan in insta, Bee Gyan Khanal in Facebook, Bigyan Khanal in linkedin, Notskinny#5566 in Discord.
 
 <!---
 Bigyankhanal33/Bigyankhanal33 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
